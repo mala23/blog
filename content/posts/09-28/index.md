@@ -13,7 +13,7 @@ First we looked at our assignment from last week. Everybody printed and hung a p
 
 ![The poster from the 2019 Hong Kong Protests which I brought to the seminar.](https://cdn.i-scmp.com/sites/default/files/styles/660w/public/d8/images/2019/08/23/revolution-now.png?itok=CzhnkOEd)
 
-I had brought a poster from the 2019 Hong Kong Protests.
+I had brought a poster from the 2019 Hong Kong Protests.<br/>
 inkstonenews: «Free Hong Kong, Revolution Now» is a slogan devised by pro-independence activist Edward Leung in 2016. It is one of the most commonly heard chants during Hong Kong’s monthslong protests. Photo: Instagram/ Heungshing_hk
 When I went to the wall to hang it, Charlotte hung her poster right next to it, and then proceeded to help me pin my large pin to the wall. Her print showed maoist workers in the iconic poses of the cultural revolution. I later, after the seminar, went and asked her about her decision to bring that specific poster. She pointed out that it showed three women worker. I had completely missed that fact. Apparently Mao used the global women rights movement during the cultural revolution to
 encourage women to take on traditionally male occupied carreers. Charlotte pointed out that she has a sceptical view of the parties' reasoning and the effect of this feminsitic movement.
